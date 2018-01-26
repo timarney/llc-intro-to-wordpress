@@ -1,1 +1,1 @@
-<a href="https://llcwp87668949.wordpress.com"> https://llcwp87668949.wordpress.com </a>
+<a href="https://llcwp87668949.wordpress.com/2018/01/09/first-blog-post/"> Demo Blog </a>
